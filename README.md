@@ -1,1 +1,1 @@
-# UTS_-PSIK_23B-_-Muhammad_Haikal_almajid-
+# UTS_PSIK_23B_Muhammad_Haikal_almajid
